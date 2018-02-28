@@ -1,4 +1,4 @@
 # hello-world
 every one is doing this. 
 
-This is Botong, Lets do stuff better, 
+This is Botong, Lets do stuff together. 
